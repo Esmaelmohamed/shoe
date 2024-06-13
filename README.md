@@ -11,3 +11,4 @@
 💙 Join the channel to see more videos like this. [Esmael Lab ](https://www.youtube.com/@EsmaelLab)
 
 ![preview img](/preview.png)
+![watch live](https://shoe-7n7.pages.dev/)
