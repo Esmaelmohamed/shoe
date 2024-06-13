@@ -9,6 +9,6 @@
 - Compatible with all mobile devices and with a beautiful and pleasant user interface.
 
 💙 Join the channel to see more videos like this. [Esmael Lab ](https://www.youtube.com/@EsmaelLab)
+[watch live](https://shoe-7n7.pages.dev/)
 
 ![preview img](/preview.png)
-[watch live](https://shoe-7n7.pages.dev/)
